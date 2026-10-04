@@ -1,0 +1,2 @@
+# premium-inserted-tool-001-inserted-carbide-tool-tip-cl
+Stop digging through bins and misplacing tool specs — the Inserted Carbide Tool &amp; Tip Clamp Craft Hub ends the chaos of scattered sticky notes and spreadsheets.  This Notion template gives you a single, searchable command center for every inserted carbide tool and tip clamp you own. No more duplicate purchases or wasted setup time — just instant ac
